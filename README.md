@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Github and any programing language
 - 💞️ I’m looking to collaborate on any blockchain or open source project
 - 📫 You can contact me on Twitter @Astrozohmbie
-- 💎🐶👐 Dope Shiba #3819
+- 💎🐶👐 Dope Shiba #3819 and i really want to create more utility for the project
 - I want to learn EVERYTHING you can teach me :)
 - I REALLY am here for the tech, money is nice, but creating is way better!
 <!---
